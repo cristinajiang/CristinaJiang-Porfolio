@@ -1,2 +1,3 @@
 # CristinaJiang-Porfolio
-![tree-736885_1280](https://github.com/cristinajiang/CristinaJiang-Porfolio/assets/135065815/7699d462-45ca-40e9-9db9-a74ddc28964a)
+<img width="933" alt="Screenshot 2023-04-03 at 3 04 32 PM" src="https://github.com/cristinajiang/CristinaJiang-Porfolio/assets/135065815/ed9bc77d-f91b-44bd-8151-1746aeec2581">
+
